@@ -1,1 +1,1 @@
-# Prak5_KecerdasanBuatan_Azzahra
+# Prak_KecerdasanBuatan_Azzahra
